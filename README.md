@@ -1,2 +1,0 @@
-# bejad
-not bad
